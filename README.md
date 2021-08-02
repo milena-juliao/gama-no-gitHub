@@ -1,0 +1,1 @@
+Estou aprendendo muito sobre o Git com o curso, estou me esforçando bastante pois não é tão fácil quanto parece, mas com foco e muito estudo ele se torna compreensivo.
